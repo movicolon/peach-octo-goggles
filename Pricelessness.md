@@ -1,4 +1,4 @@
-**Blueprint of Pricelessness in Simple Terms**
+**Blueprint of buying and selling**
 
 **Start:**  
 Trade's no more 'buy-sell.' It’s more about right ways, love, and peace. We seek to keep things pure and fair. To trade with care, we need to know worth ain't in cash, but in life and light.
